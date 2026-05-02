@@ -1,4 +1,4 @@
-# Olá eu sou o Kairo 👋😉
+# Olá eu sou o Kairo 👋
 ### Estou começando por aqui
 
 
